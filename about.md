@@ -15,7 +15,7 @@ Learn more about [ORDER365](https://order365.in).
 
 Some upcoming fun facts about ORDER365:
 
-* Buy Grocery while sitting in you bedroom.
+* Grocery 
 * Cab Services 
 * Bakery 
 
